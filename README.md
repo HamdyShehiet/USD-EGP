@@ -1,0 +1,2 @@
+# USD-EGP
+ USD-EGP
